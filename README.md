@@ -1,0 +1,1 @@
+# ptkdik_smkn1 
